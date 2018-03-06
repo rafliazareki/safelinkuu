@@ -1,0 +1,2 @@
+# safelinkuu
+pemendek link
